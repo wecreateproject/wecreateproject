@@ -1,4 +1,4 @@
-- 👋🏾 Hi, A tech agency passionate by new reality.
+- 👋🏾 A tech agency passionate by new reality.
 - 👀 We don't follow conventional marketing patterns, we destroy and recreate them.
 - 🌱 We know what will transform and lift a brand higher, we carry your brand to the top in the digital transformation wave of the future.
 - 📫 How to reach me https://link3.to/wecreateproject
