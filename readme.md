@@ -1,4 +1,4 @@
-  👋🏾 A tech agency passionate by new reality.
+  👋🏾 Creative tech agency passionate by new reality.
 
   👀 We don't follow conventional marketing patterns, we destroy and recreate them.
 
